@@ -13,7 +13,7 @@ https://98sht.us.kg/
 自动发货
 
 色花堂邀请码98堂邀请码频道：
-#https://t.me/sehuatang233
+https://t.me/sehuatang233
 
 色花堂邀请码98堂邀请码交流群：
 https://t.me/SEHUATANGYAOQINMA
